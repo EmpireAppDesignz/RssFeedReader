@@ -9,3 +9,6 @@ I have many other templates available but most are not Free as the ones I've alr
 Any questions or requests contact me:
 
 Eric@EmpireAppDesignz.com OR EmpireAppDesignz@gmail.com
+
+Checkout my Applications in iTunes:
+http://empireappdesignz.com
